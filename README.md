@@ -1,0 +1,5 @@
+- 👋 @carolinanavalha
+- 👀 me interesso por biologia marinha 
+- 🌱 atualmente estou aprendendo pensamento computacional  ...
+- 💞️ meu projeto foi baseado na materia Historia sobre os fosséis dos repteis ..
+- 📫 me siga no instagram:carolll.cj
